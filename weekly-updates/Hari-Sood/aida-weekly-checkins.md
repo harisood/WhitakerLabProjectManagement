@@ -2,6 +2,35 @@
 
 * [24/5/22](#date-24-may-2022)
 * [30/6/22](#date-30-june-2022)
+* [21/7/22](#date-21-july-2022
+
+### Date: 30 June 2022
+
+#### Who did you help this week?
+* JJ & DSG group - moodle course
+* STEADFAST workshop - providing feedback on draft report from work they've done with young people with diabetes
+* ACC - presentation at ES Catapult
+* AB - TRE strategy (and general team on this)
+* AC - prepare for presentation
+
+#### Who helped you this week?
+* Everyone helping with user agreements!
+* DSH team on providing time to talk through strategy
+* Wider legal/DP/IT teams responding to questions
+
+#### What did you achieve?
+* Meetings with events/partnerships to understand RAM involvement
+* Progress on DSPT accreditation with IT/DP
+* Strategy planning with AB/ZE/Wider TPS team
+* Time to understand DSH deployment process
+* 
+
+#### What did you struggle with?
+* Information governance expertise & documentation
+
+#### What would you like to work on next week?
+* UBI thoughts
+
 
 ### Date: 30 June 2022
 
